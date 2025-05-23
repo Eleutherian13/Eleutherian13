@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Eleutherian13
-- 👀 I’m interested in AI & ML and Making Blockchain
+- 👀 I’m interested in AI & ML and Blockchain
 - 🌱 I’m currently learning AI & Web -2 
 - 💞️ I’m looking to collaborate on Linkedin
 - 📫 How to reach me tiwariharshwardhhan@gmail.com
